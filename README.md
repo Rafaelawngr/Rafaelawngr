@@ -2,7 +2,7 @@
 
 ## Biografia
 
-##### UX/UI Designer me aventurando no mundo da programação!
+##### Front End Developer em formação! 
 
 #### Conhecimentos e interesses:
 
