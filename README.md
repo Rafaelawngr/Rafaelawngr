@@ -2,7 +2,7 @@
 
 ## Biografia
 
-##### Front End Developer em formação! 
+##### Desenvolvedora em formação! 
 
 #### Conhecimentos e interesses:
 
